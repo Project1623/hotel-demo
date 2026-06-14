@@ -39,4 +39,4 @@
 Для будь-яких запитань щодо функціонування сайту звертайтеся до розробника. 
 Номер телефону 0633268148,
 Instagram romaniukmiwa2021,
-Gmail cgame4751@gmail.com,
+Gmail cgame4751@gmail.com
